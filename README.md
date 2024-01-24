@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mimiYunsu
+- 👋 Hi, I’m @mimiYuns
 - 👀 I’m interested in:anime and Vtubers
 - 🌱 I’m currently learning about:Anime 
 - 💞️ I’m looking to collaborate: on nothing 
