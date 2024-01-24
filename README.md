@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @mimiYunsu
+- 👀 I’m interested in:anime and Vtubers
+- 🌱 I’m currently learning about:Anime 
+- 💞️ I’m looking to collaborate: on nothing 
+- 📫 How to reach me: with fun and smartness
+- 😄 Pronouns:
+- ⚡ Fun fact:swiming
+- 💅 slay fact:im just slaying in roblox
+- 🤳 snapin in roblox:funny
+
+- like u see mimiYuns is very ✨️special✨️
